@@ -1,0 +1,1 @@
+# mobin-problem-6
